@@ -1,2 +1,1 @@
-Why do programmers prefer dark mode?
-Because the light attracts bugs
+The professor said AI will eventually replace us. I think I’ll let it start with attending my 8 AM lectures.
